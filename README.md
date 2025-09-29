@@ -5,4 +5,4 @@
 Art from Twitter/X: @ron_just000 
 
 
-hum if a random person praises your toya on ata or strawpage that MIGHT...be me hehehe (sorry for thr eassays <3)
+
