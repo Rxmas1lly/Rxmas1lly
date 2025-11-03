@@ -1,4 +1,4 @@
-   ★ 24.1...isnt it a lovely day?   
+   ★ 24.10...isnt it a lovely day?   
      . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   
 ![IMG_0628](https://github.com/user-attachments/assets/be70a5d3-8058-4ee6-929a-5bb3c990010b)
