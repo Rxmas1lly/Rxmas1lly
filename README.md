@@ -6,7 +6,7 @@
 
 ☆ - - - - - - - - - - - - - - -
  
-
+[ **WAKE UP GET UP STAND UP MERA!** ]
 
 :: Hello there ! I’m aki as you saw from my profile here’s a bit more about me and some information-!
 
