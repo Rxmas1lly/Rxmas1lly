@@ -1,7 +1,8 @@
 ![IMG_2472](https://github.com/user-attachments/assets/c42cfc44-8474-4797-8519-6015fafe6660)
 
 
-----------------------------------------------
+- - - - - - - - - - - - - - -
+ 
 
 
 :: Hello there ! I’m aki as you saw from my profile here’s a bit more about me and some information-!
