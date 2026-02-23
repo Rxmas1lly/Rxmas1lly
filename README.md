@@ -1,5 +1,8 @@
 ![IMG_2472](https://github.com/user-attachments/assets/c42cfc44-8474-4797-8519-6015fafe6660)
 
+____________________________________________________________________________________________ 
+
+
 
 :: Hello there ! I’m aki as you saw from my profile here’s a bit more about me and some information-!
 
@@ -15,4 +18,4 @@ I tend to be socially awkward  at first but once I get comfortable  I can change
 
 Please  tell me what you're uncomfortable with before  interacting  with me since I usually  see almost everything  as a joke if I say something dark or a sensitive topic  to you please tell me!! 
 
-Fandoms  ; - tshd, alnst, gi, pjsk, tos, awa, kny, dr, bsd, mm12,4saken,dp,bb
+Fandoms  ; - tshd, alnst, gi, pjsk, tos, awa, kny, dr, bsd, mm12,4saken,dp,bb ✦
