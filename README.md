@@ -11,6 +11,8 @@
 
 ・I’m from Saudi Arabia, I can speak English -  عربي but I mostly speak English, English isn’t my first language I may have some mistakes or misunderstand what you’re saying.
 
+・w2i please  I'm shy bru-
+
 ・My gender is female , but I don’t really care about pronouns, he/she preferred, I’m also aroace ☆
 
 ・Please Dni  with me if : - 19+ , L/licon, proshipper , toxic, racist, Islamphobics, z//philes,
