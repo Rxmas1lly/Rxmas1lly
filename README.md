@@ -2,7 +2,7 @@
 ![IMG_2472](https://github.com/user-attachments/assets/c42cfc44-8474-4797-8519-6015fafe6660)
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ysbmhvrourobad5zzqu7on2dqa&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=true&bar_color=ff6a00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 
 ☆ - - - - - - - - - - - - - - -
  
@@ -18,7 +18,7 @@
 
 ・Please Dni  with me if : - 19+ , L/licon, proshipper , toxic, racist, Islamphobics, z//philes,
 
-・My birthday is Oct 15th . My mbti is ISFP 6w5. Im also EXTREMELY  hyperfixated on Toya ok...  I have asthma and I’m a Masochist my favorite food is pancakes cheesecake and rice  , meat 
+・My birthday is Oct 15th . My mbti is ISFP 6w5. Im also EXTREMELY  hyperfixated on Toya and VBS ok...  I have asthma and I’m a Masochist my favorite food is pancakes cheesecake and rice  , meat 
 
 ・I tend to be socially awkward  at first but once I get comfortable  I can change A LOT. 
 
@@ -30,4 +30,8 @@
 thats all bye thanks for reading this </3
 
 
+
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ysbmhvrourobad5zzqu7on2dqa&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=true&bar_color=ff6a00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
