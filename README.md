@@ -24,7 +24,7 @@
 
 ・Please  tell me what you're uncomfortable with before  interacting  with me since I usually  see almost everything  as a joke if I say something dark or a sensitive topic  to you please tell me!! 
 
-・Fandoms  ; - tshd, alnst, gi, pjsk, tos, awa, kny, dr, bsd, mm12,4saken,dp,bb,lc,kenji,lazye,kubzscouts,viyaura,newjeans,katseye,illit,siita✦
+・Fandoms  ; - tshd, alnst, gi, pjsk, tos, awa, kny, dr, bsd, mm12,vocaloid,4saken,dp,bb,lc,kenji,lazye,kubzscouts,viyaura,newjeans,katseye,illit,siita✦
 
 (my sibling raised me right thank you ugly rat)
 
