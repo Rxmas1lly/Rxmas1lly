@@ -18,7 +18,7 @@
 
 ・Please Dni  with me if : - 19+ , L/licon, proshipper , toxic, racist, Islamphobics, z//philes,
 
-・My birthday is Oct 15th . My mbti is ISFP 6w5. Im also EXTREMELY  hyperfixated on Toya and VBS ok...  I have asthma and I’m a Masochist , my favorite food is pancakes cheesecake and rice  , meat , tissues, dried nuts
+・My birthday is Oct 15th . My mbti is ISFP 4w3 . Im also EXTREMELY  hyperfixated on Toya and VBS ok...  I have asthma and I’m a Masochist , my favorite food is pancakes cheesecake and rice  , meat , tissues, dried nuts
 
 ・I tend to be socially awkward  at first but once I get comfortable  I can change A LOT. 
 
