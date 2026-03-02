@@ -20,9 +20,9 @@
 
 ・Please Dni  with me if : - 19+ , L/licon, proshipper , toxic, racist, Islamphobics, z//philes,homophobics..ok..ok
 
-・My birthday is Oct 15th . My mbti is ISFP 4w3 . Im also EXTREMELY  hyperfixated on Toya and VBS  and dr,,ok... , my favorite food is pancakes cheesecake and rice  , meat , tissues, dried nuts
+・My birthday is Oct 15th . My mbti is ISFP 4w3 !
 
-・I tend to be socially awkward  and socially anxious please bear with me -
+・I tend to be socially awkward  and socially anxious please bear with me—
 
 ・Please  tell me what you're uncomfortable with before  interacting  with me since I usually  see almost everything  as a joke if I say something dark or a sensitive topic  to you please tell me!! 
 
