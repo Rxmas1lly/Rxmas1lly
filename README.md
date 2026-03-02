@@ -10,6 +10,8 @@
 
 :: Hello there ! I’m aki as you saw from my profile here’s a bit more about me and some information-!
 
+・ I say "ok" and "oh" a lot, sometimes like type my actions out loud like "sweats", "gasps" I'm not sure why but yeah !
+
 ・I’m from Saudi Arabia, I can speak English -  عربي but I mostly speak English, English isn’t my first language I may have some mistakes or misunderstand what you’re saying.
 
 ・w2i please  I'm shy bru-
@@ -20,7 +22,7 @@
 
 ・My birthday is Oct 15th . My mbti is ISFP 4w3 . Im also EXTREMELY  hyperfixated on Toya and VBS  and dr,,ok... , my favorite food is pancakes cheesecake and rice  , meat , tissues, dried nuts
 
-・I tend to be socially awkward  at first but once I get comfortable  I can change ^_^
+・I tend to be socially awkward  and socially anxious please bear with me -
 
 ・Please  tell me what you're uncomfortable with before  interacting  with me since I usually  see almost everything  as a joke if I say something dark or a sensitive topic  to you please tell me!! 
 
