@@ -8,28 +8,25 @@
  
 [ **𝘞𝘈𝘒𝘌 𝘜𝘗 𝘎𝘌𝘛 𝘜𝘗 𝘚𝘛𝘈𝘕𝘋 𝘜𝘗 𝘔𝘌𝘙𝘈!** ]
 
-:: Hello there ! I’m aki as you saw from my profile here’s a bit more about me and some information-!
+:: Hello there ! 
 
 ・ I say "ok" and "oh" a lot, sometimes like type my actions out loud like "sweats", "gasps" I'm not sure why but yeah !
 
-・I’m from Saudi Arabia, I can speak English -  عربي but I mostly speak English, English isn’t my first language I may have some mistakes or misunderstand what you’re saying.
+・I’m from Saudi Arabia, I can speak  English isn’t my first language I may have some mistakes or misunderstand what you’re saying.
 
 ・w2i please  I'm shy bru-
-
-・My gender is female , but I don’t really care about pronouns im more comfortable with he/him and she/her !
 
 ・Please Dni  with me if : - 19+ , L/licon, proshipper , toxic, racist, Islamphobics, z//philes,homophobics..ok..ok
 
 ・My birthday is Oct 15th . My mbti is ISFP 4w3 !
 
-・I tend to be socially awkward  and socially anxious please bear with me—
+
 
 ・Please  tell me what you're uncomfortable with before  interacting  with me since I usually  see almost everything  as a joke if I say something dark or a sensitive topic  to you please tell me!! 
 
 ・Fandoms  ; - tshd, alnst, gi, pjsk, tos, awa, kny, dr, bsd, mm12,vocaloid,4saken,dp,bb,lc,kenji,lazye,kubzscouts,viyaura,newjeans,katseye,illit,siita✦
 
-
-thats all bye thanks for reading this </3
+( send me gimmicks on my strawpage pls psstpsst...)
 
 
 
