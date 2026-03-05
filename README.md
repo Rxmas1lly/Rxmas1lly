@@ -18,10 +18,6 @@
 
 ・Please Dni  with me if : - 19+ , L/licon, proshipper , toxic, racist, Islamphobics, z//philes,homophobics..ok..ok
 
-・My birthday is Oct 15th . My mbti is ISFP 4w3 !
-
-
-
 ・Please  tell me what you're uncomfortable with before  interacting  with me since I usually  see almost everything  as a joke if I say something dark or a sensitive topic  to you please tell me!! 
 
 ・Fandoms  ; - tshd, alnst, gi, pjsk, tos, awa, kny, dr, bsd, mm12,vocaloid,4saken,dp,bb,lc,kenji,lazye,kubzscouts,viyaura,newjeans,katseye,illit,siita✦
