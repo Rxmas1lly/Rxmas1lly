@@ -16,11 +16,6 @@
 
 ・w2i please  I'm shy bru-
 
-・Please Dni  with me if : - 19+ , L/licon, proshipper , toxic, racist, Islamphobics, z//philes,homophobics..ok..ok
-
-・Please  tell me what you're uncomfortable with before  interacting  with me since I usually  see almost everything  as a joke if I say something dark or a sensitive topic  to you please tell me!! 
-
-・Fandoms  ; - tshd, alnst, gi, pjsk, tos, awa, kny, dr, bsd, mm12,vocaloid,4saken,dp,bb,lc,kenji,lazye,kubzscouts,viyaura,newjeans,katseye,illit,siita✦
 
 ( send me gimmicks on my strawpage pls psstpsst...)
 
