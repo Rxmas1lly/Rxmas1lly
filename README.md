@@ -1,5 +1,5 @@
+<img width="1000" height="1000" alt="Untitled214_20260423151800" src="https://github.com/user-attachments/assets/9f95db16-ff4f-4009-b5bb-915e66fb0dac" />
 
-<img width="1000" height="1000" alt="Untitled214_20260423151800" src="https://github.com/user-attachments/assets/2c16d09b-2922-4ccd-9a37-04cdcfe61a30" />
 
 
 
@@ -12,7 +12,6 @@
 
 ( send me gimmicks on my strawpage pls psstpsst...)
 
-https://en.pronouns.page/@Akitxshinxnxme
 
 
 
