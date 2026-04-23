@@ -12,6 +12,8 @@
 
 ( send me gimmicks on my strawpage pls psstpsst...)
 
+https://en.pronouns.page/@Akitxshinxnxme
+
 
 
 
