@@ -3,6 +3,6 @@
 
 
 
- [ᴘʀɴs ᴘᴀɢᴇ](https://en.pronouns.page/@Akitxshinxnxme)  [ᴀᴛᴀ](https://akitosstupid.atabook.org/)
+ [ᴘʀɴs ᴘᴀɢᴇ](https://en.pronouns.page/@Akitxshinxnxme)   '  [ᴀᴛᴀ](https://akitosstupid.atabook.org/) '  [sᴛʀᴡ ᴘᴀɢᴇ](https://akitostastypancakes.straw.page/)
 
 
