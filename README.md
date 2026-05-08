@@ -3,6 +3,6 @@
 
 𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃
 
-―୨୧⋆ ˚.           [ᴘʀɴs ᴘᴀɢᴇ](https://en.pronouns.page/@Akitxshinxnxme)   '  [ᴀᴛᴀ](https://akitosstupid.atabook.org/) '  [sᴛʀᴡ ᴘᴀɢᴇ](https://akitostastypancakes.straw.page/)
+―୨୧⋆ ˚.      𓂃.     [ᴘʀɴs ᴘᴀɢᴇ](https://en.pronouns.page/@Akitxshinxnxme)   '  [ᴀᴛᴀ](https://akitosstupid.atabook.org/) '  [sᴛʀᴡ ᴘᴀɢᴇ](https://akitostastypancakes.straw.page/)
 
 
