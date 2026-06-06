@@ -1,4 +1,4 @@
-<img width="892" height="671" alt="IMG_5616" src="https://github.com/user-attachments/assets/8cbb07a6-224c-406c-ad86-8f2ca152360d" />
+
 
 
 
@@ -13,4 +13,4 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ysbmhvrourobad5zzqu7on2dqa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=74a7ff&bar_color_cover=false">
   </a>
 </p>
-(i tried i suck at GFX art ok.......ok)
+( I'll decorate this one day) 
