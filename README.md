@@ -1,10 +1,13 @@
 
 
 <img width="1445" height="463" alt="IMG_5972" src="https://github.com/user-attachments/assets/e242ffe2-89a7-49f2-8f31-acd1ef06e625" />
-
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 <p align="center">𝙰𝚔𝚒 : 𝚜𝚑𝚞
 <p align="center">𝙰𝚛𝚘-𝚊𝚌𝚎
 <p align="center">𝙰𝚔𝚒𝚝𝚘 𝚒𝚛𝚕<img width="20" height="10" alt="IMG_5975" src="https://github.com/user-attachments/assets/fff6e84e-50b7-4717-8094-629430a55e83" />
+
+
+
 
 
 
