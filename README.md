@@ -21,3 +21,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ysbmhvrourobad5zzqu7on2dqa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=74a7ff&bar_color_cover=false">
   </a>
 </p>
+
+ [Ata](https://akitosstupid.atabook.org/) ୨୧
+  [strwpage](https://akitostastypancakes.straw.page) ୨୧
+  [prns](https://en.pronouns.page/@Akitxshinxnxme)
